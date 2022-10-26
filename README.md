@@ -1,0 +1,1 @@
+# Best_algorithm_for_simple_trading
